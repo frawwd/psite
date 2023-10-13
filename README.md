@@ -1,1 +1,1 @@
-# [fraud.](http://fraud.みんな/)http://fraud.みんな/
+# [fraud.](http://fraud.みんな/)
